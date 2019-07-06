@@ -2,4 +2,4 @@
 
 Hello everyone!
 
-Manoj here, i like to experiment new things and this one among them
+Manoj here, i like to experiment new things and this is one among those things
